@@ -2,6 +2,7 @@
 
 ## About Me
 -**Name:** Bo Kyoung Kim
+
 -**Major:** Interior architecture design
 
 ## A Piece of Music I Love
